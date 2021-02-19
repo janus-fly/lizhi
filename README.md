@@ -1,8 +1,8 @@
-# -
+# 李志歌曲下载
 李志歌曲合集打包在线听百度云网易云下载下雨​/​被禁忌的游戏​/​天空之城
 ![](https://github.com/janus-fly/-/blob/main/images/2%E6%9C%8819%E6%97%A5.jpg)
 
-下单链接购买：https://weidian.com/item.html?itemID=4284594176&wfr=c
+微信下单链接购买：https://weidian.com/item.html?itemID=4284594176&wfr=c
 
 【李志全部无损音乐专辑百度云下载】含现场演唱会
 李志《勾三搭四》《这个世界会好吗》《1701》等
